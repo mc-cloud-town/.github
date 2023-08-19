@@ -1,8 +1,8 @@
 ## Hi Hi 我們是 Cloud Town exquisite craft(雲鎮工藝)
 
-> [Discord Server](https://discord.gg/H6uHghNq5Z)
+> Discord ⁠Cloud Town Exquisite Craft(雲鎮工藝): [Discord Server](https://discord.gg/H6uHghNq5Z)
 >
-> [Youtube](https://www.youtube.com/@CTEC_)
+> Youtube CTEC_: [Youtube](https://www.youtube.com/@CTEC_)
 >
 > 聯絡信箱/email: <cloudtown0723@gmail.com>
 
