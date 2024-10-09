@@ -4,7 +4,7 @@
 >
 > Youtube CTEC_: [Youtube](https://www.youtube.com/@CTEC_)
 >
-> 聯絡信箱/email: <cloudtown0723@gmail.com>
+> 聯絡信箱/email: <admin@mc-ctec.org> <cloudtown0723@gmail.com>
 
 雲鎮工藝是一個1.17.1審核制技術向服務器，為BRIDGERS桥联(生電服聯合)的成員服之一。
 
